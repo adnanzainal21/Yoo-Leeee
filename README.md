@@ -1,3 +1,3 @@
 Enatah mau nulis apa broo 
 
-maap lupa
+maap lupa, hehehehehe
