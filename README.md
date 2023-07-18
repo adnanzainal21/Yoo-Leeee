@@ -1,3 +1,2 @@
-Enatah mau nulis apa broo 
-
-maap lupa, hehehehehe
+### Pimpinan Yoo Leeee
+#### TaksForYou
